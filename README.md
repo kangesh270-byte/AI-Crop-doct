@@ -1,1 +1,0 @@
-# AI-Crop-doct
